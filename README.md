@@ -31,7 +31,6 @@
 
 𝗞𝗮𝘁𝘀𝘂 -(𝘛𝘩𝘦 𝘲𝘶𝘦𝘴𝘵𝘪𝘰𝘯𝘢𝘣𝘭𝘦 𝘤𝘳𝘦𝘢𝘵𝘶𝘳𝘦 𝘪𝘯 𝘮𝘺 𝘩𝘢𝘪𝘳) 
 
-𝗦𝗮𝘀 -(𝖳𝗁𝖾 𝖽𝖾𝖺𝗋𝖾𝗌𝗍 𝖿𝗋𝗂𝖾𝗇𝖽 𝖨 𝗅𝗈𝗏𝖾 ) 
 ────୨ৎ────────୨ৎ────────୨ৎ────
 
 𝖧𝖮𝖭𝖮𝖴𝖱𝖠𝖡𝖫𝖤 𝖬𝖤𝖭𝖳𝖨𝖮𝖭𝖲 𝖳𝖨𝖬𝖤
@@ -51,7 +50,6 @@ yoku - a very dear close friend of mine i love spending time with her and shes r
 
 katsu - hhi katsu-chann (sorry its a habit i have with everyone) anywayi wanna say thnk you for being one of my close friends in such short time you really mean a loy to me and i hope we stay friends ilysm <3
 
-sas - A really good friend to me and im glad we spoke again since youve came back i hope we can continue to be friend this time and not have any more problems or situtaions again ily and thank you for being such a good friend to me ur important <3
 ᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
 
 ✧𝑩𝒀𝑰; 
