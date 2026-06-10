@@ -8,41 +8,37 @@
 
 
 
-(ɪ ғɪɴᴀʟʟʏ ғɪxᴇᴅ ᴛʜɪs ᴏᴍʟ ʟᴍᴀᴏ)  my gf is stalking this lmao hi lyra
+(ɪ ғɪɴᴀʟʟʏ ғɪxᴇᴅ ᴛʜɪs ᴏᴍʟ ʟᴍᴀᴏ)  my gf is stalking this lmao hi yunnie my dear
 
-𝘜𝘏𝘔 𝘏𝘐 𝘐'𝘔 𝘉𝘈𝘊𝘒 (𝘐𝘷𝘦 𝘣𝘦𝘦𝘯 𝘩𝘦𝘳𝘦 𝘵𝘩𝘦 𝘸𝘩𝘰𝘭𝘦 𝘵𝘪𝘮𝘦 𝘥𝘰𝘯'𝘵 𝘸𝘰𝘳𝘳𝘺) 𝘧𝘪𝘳𝘴𝘵𝘭𝘺 𝘐 𝘸𝘰𝘶𝘭𝘥 𝘭𝘪𝘬𝘦 𝘵𝘰 𝘢𝘯𝘯𝘰𝘶𝘯𝘤𝘦 𝘵𝘩𝘢𝘵 𝘐'𝘮 𝘯𝘯𝘰𝘵 𝘨𝘰𝘪𝘯𝘨 𝘮𝘺 "𝘔𝘢𝘧𝘶" 𝘧𝘰𝘳 𝘢 𝘸𝘩𝘪𝘭𝘦 𝘣𝘤 𝘰𝘧 𝘴𝘰𝘮𝘦 𝘳𝘦𝘢𝘴𝘰𝘯𝘴 𝘢𝘯𝘥 (ᴀ ᴄᴇʀᴛᴀɪɴ sɪᴛᴜᴀᴛɪᴏɴ ʙᴛᴡ) 𝘴𝘰 𝘧𝘳𝘰𝘮 𝘯𝘰𝘸 𝘰𝘯 𝘶𝘯𝘵𝘪𝘭 𝘐 𝘴𝘢𝘺 𝘐 𝘱𝘳𝘦𝘧𝘦𝘳 𝘨𝘰𝘪𝘯𝘨 𝘣𝘺 𝘠𝘶𝘬𝘪 𝘰𝘳 𝘕𝘢𝘯𝘪 𝘢𝘴 𝘴𝘰𝘮𝘦 𝘱𝘱𝘭 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘢𝘭𝘳𝘦𝘢𝘥𝘺 𝘣𝘶𝘵 𝘺𝘦𝘢 𝘵𝘩𝘢𝘵'𝘴 𝘢𝘭𝘭 𝘵𝘩𝘢𝘯𝘬𝘴 🥹
+𝘜𝘏𝘔 𝘏𝘐 𝘐'𝘔 𝘉𝘈𝘊𝘒 (𝘐𝘷𝘦 𝘣𝘦𝘦𝘯 𝘩𝘦𝘳𝘦 𝘵𝘩𝘦 𝘸𝘩𝘰𝘭𝘦 𝘵𝘪𝘮𝘦 𝘥𝘰𝘯'𝘵 𝘸𝘰𝘳𝘳𝘺) 𝘚𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘐 𝘸𝘪𝘭𝘭 𝘣𝘦 𝘵𝘢𝘬𝘪𝘯𝘨 𝘭𝘰𝘯𝘨 𝘰𝘳 𝘴𝘩𝘰𝘳𝘵 𝘣𝘳𝘦𝘢𝘬𝘴 𝘥𝘦𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘰𝘯 𝘸𝘩𝘢𝘵'𝘴 𝘨𝘰𝘪𝘯𝘨 𝘰𝘯
 
-𝘐'𝘔 4𝘛𝘌𝘌𝘕 𝘐𝘕 2 𝘔𝘖𝘕𝘛𝘏𝘚 𝘞𝘖𝘖𝘖 ( 06.21) 
+4𝘵𝘦𝘦𝘯 𝘪𝘯 11 𝘥𝘢𝘺𝘴𝘴( 06.21) 
 
 𝘏𝘢𝘱𝘱𝘪𝘭𝘺 𝘮𝘢𝘳𝘳𝘪𝘦𝘥 𝘢𝘯𝘥 𝘵𝘢𝘬𝘦𝘯 𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘸𝘪𝘧𝘦 𝘴𝘮. 
 
 ────୨ৎ────────୨ৎ────────୨ৎ────
 𝘔𝘺 𝘵𝘳𝘶𝘴𝘵𝘦𝘥 𝘤𝘭𝘰𝘴𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘢𝘯𝘥 𝘧𝘢𝘮𝘪𝘭𝘺 ( 𝘪𝘭𝘺 𝘨𝘶𝘺𝘴) 
 
-𝗬𝗲𝗼𝗻 & 𝗘𝘁𝗵𝗲 -(𝘔𝘺 𝘪𝘥𝘪𝘰𝘵 𝘱𝘢𝘳𝘦𝘯𝘵𝘢𝘭 𝘧𝘪𝘨𝘶𝘳𝘦𝘴 𝘐 𝘭𝘰𝘷𝘦 𝘵𝘩𝘦𝘮)
+𝙉𝙖𝙩 -(𝘚𝘪𝘭𝘭𝘺 𝘒𝘢𝘪𝘵𝘰 𝘭𝘰𝘷𝘦𝘳 𝘣𝘵𝘸) 
 
-𝗡𝗮𝘁 -(𝘚𝘪𝘭𝘭𝘺 𝘒𝘢𝘪𝘵𝘰 𝘭𝘰𝘷𝘦𝘳 𝘣𝘵𝘸) 
+𝙔𝙪𝙣𝙣𝙞𝙚 -(𝘔𝘺 𝘸𝘪𝘧𝘦 𝘪𝘭𝘺𝘴𝘮 𝘣𝘵𝘸) 
 
-𝗟𝘆𝗿𝗮 -(𝘔𝘺 𝘸𝘪𝘧𝘦 𝘪𝘭𝘺𝘴𝘮 𝘣𝘵𝘸) 
+𝘿𝙞𝙣𝙤 -(𝘋𝘪𝘯𝘰 𝘯𝘶𝘨𝘨𝘦𝘵𝘴 𝘣𝘵𝘸 𝘐'𝘮 𝘴𝘰𝘳𝘳𝘺 😭) 
 
-𝗗𝗶𝗻𝗼 -(𝘋𝘪𝘯𝘰 𝘯𝘶𝘨𝘨𝘦𝘵𝘴 𝘣𝘵𝘸 𝘐'𝘮 𝘴𝘰𝘳𝘳𝘺 😭) 
+𝙔𝙤𝙠𝙪 -(𝘚𝘢𝘯𝘦𝘴𝘵 𝘥𝘦𝘧𝘰𝘬𝘰 𝘧𝘢𝘯 𝘐 𝘵𝘩𝘪𝘯𝘬 𝘪𝘥𝘬)
 
-𝗬𝗼𝗸𝘂 -(𝘚𝘢𝘯𝘦𝘴𝘵 𝘥𝘦𝘧𝘰𝘬𝘰 𝘧𝘢𝘯 𝘐 𝘵𝘩𝘪𝘯𝘬 𝘪𝘥𝘬)
+𝙆𝙖𝙩𝙨𝙪 -(𝘛𝘩𝘦 𝘲𝘶𝘦𝘴𝘵𝘪𝘰𝘯𝘢𝘣𝘭𝘦 𝘤𝘳𝘦𝘢𝘵𝘶𝘳𝘦 𝘪𝘯 𝘮𝘺 𝘩𝘢𝘪𝘳) 
 
-𝗞𝗮𝘁𝘀𝘂 -(𝘛𝘩𝘦 𝘲𝘶𝘦𝘴𝘵𝘪𝘰𝘯𝘢𝘣𝘭𝘦 𝘤𝘳𝘦𝘢𝘵𝘶𝘳𝘦 𝘪𝘯 𝘮𝘺 𝘩𝘢𝘪𝘳) 
-
+𝙕𝙞𝙥 -(𝘩𝘪 𝘮𝘺 𝘱𝘳𝘦𝘤𝘪𝘰𝘶𝘴 𝘥𝘢𝘶𝘨𝘩𝘵𝘦𝘳 𝘪𝘭𝘺𝘴𝘮 𝘐'𝘭𝘭 𝘮𝘢𝘬𝘦 𝘶𝘳 𝘩𝘰𝘯𝘰𝘳𝘢𝘣𝘭𝘦 𝘴𝘰𝘰𝘯 𝘪 𝘱𝘳𝘰𝘮𝘪𝘴𝘦) 
 ────୨ৎ────────୨ৎ────────୨ৎ────
 
 𝖧𝖮𝖭𝖮𝖴𝖱𝖠𝖡𝖫𝖤 𝖬𝖤𝖭𝖳𝖨𝖮𝖭𝖲 𝖳𝖨𝖬𝖤
 
 (SORRY THIS TOOK LONG I GOT SICK AND LAZY BUT ALSO FORGOT LMAO😭) 
 
-Yeon & ethe - My parental figures (IDK WHAT TO SAY HELPME) UM HII MAMA YEN & ETHE ILY GUYS SO MUCH thank yall so much for being there for me when im at my lowest and need comfort u guys are mainly my safe space and someone i can run to for anything even if its just for a little chat bc i get bored lol, anyway u guys mean so much to me and i never wanna lose u guys
-and i hope we stay close friends forever you guys are so special to me and you mean alot to me and i never wanna that go and i hope that we can make more memories as the year goes on but once again i wanna say thank u so much for being the best friends and parental figures i could ever ask for i love you guys so much and i hope i never lose you both you both mean the world to me ily guys so much<3
-
 nat - (idk how to start these off oml) HI NAT UR LIKE A BTOTHER TO ME (IDK WHAT ELSE TO SAY LMAO) i wanna say thank u for being with me through everything and being there when i wasnt at my best ur a really close friend to me and i dont wanna lose u bc ur really funny and i enjoy spending time with you or even talk to you but even when we dont talk i still enjoy seeing u online bc u mean so much to me and i dont wanna lose that bc we have so manny memories together and im really glad we became friends bc i enjoyed meeting bc u were a chill person when i first met u but again thank u so much for being one of my closest friends i love u so much/p and i hope we stay friend forever <3
 
-lyra - HHIIHI MY LOVE i have soo much i could say about u firstly i wanna say i love u so so so so much and that u mean everything to me u make me so happy when ever i see u and ur very impotant to me and i hope i never lose u ( id be really sad ) im so glad that ur still with me and i hope it stays that way and i hope we can keep laughing together and making more memories to come i love you so much and i hope we never seprate (03.23) <3
+yunnie - HHIIHI MY LOVE i have soo much i could say about u firstly i wanna say i love u so so so so much and that u mean everything to me u make me so happy when ever i see u and ur very impotant to me and i hope i never lose u ( id be really sad ) im so glad that ur still with me and i hope it stays that way and i hope we can keep laughing together and making more memories to come i love you so much and i hope we never seprate (03.23) <3
 
 dino - HHIIHI DINONONOME ( U FINNALY MADE UR GITHUB IM SO HAPPY) UM I JSUT WANNA SAY THANK U SO MUCH FOR BEING ONE OF MY CLOSEST FRINEDS AN BEING THERE TO COMFORT ME WHEN I NEED IT UR SO IMPORTANT TO ME AND I DONT WANNA LOSE U im really greatful we have been friend for a long time and i hope it stays that way  i hope we stay friends for a good long time ilysm/p 
 
