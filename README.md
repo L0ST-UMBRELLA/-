@@ -8,51 +8,33 @@
 
 
 
-(ɪ ғɪɴᴀʟʟʏ ғɪxᴇᴅ ᴛʜɪs ᴏᴍʟ ʟᴍᴀᴏ)  my gf is stalking this lmao hi yunnie my dear
+( 𝘔𝘺 𝘭𝘢𝘻𝘺 𝘢𝘴𝘴 𝘧𝘪𝘯𝘢𝘭𝘭𝘺 𝘥𝘦𝘤𝘪𝘥𝘦𝘥 𝘵𝘰 𝘧𝘪𝘹 𝘵𝘩𝘪𝘴 𝘣𝘶𝘵 𝘸𝘵𝘷) 
+𝘏𝘪𝘩𝘪 𝘨𝘶𝘺𝘴𝘴 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘫𝘶𝘴𝘵 𝘢 𝘴𝘮𝘢𝘭𝘭 𝘪𝘯𝘵𝘳𝘰 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦! 
 
-𝘜𝘏𝘔 𝘏𝘐 𝘐'𝘔 𝘉𝘈𝘊𝘒 (𝘐𝘷𝘦 𝘣𝘦𝘦𝘯 𝘩𝘦𝘳𝘦 𝘵𝘩𝘦 𝘸𝘩𝘰𝘭𝘦 𝘵𝘪𝘮𝘦 𝘥𝘰𝘯'𝘵 𝘸𝘰𝘳𝘳𝘺) 𝘚𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘐 𝘸𝘪𝘭𝘭 𝘣𝘦 𝘵𝘢𝘬𝘪𝘯𝘨 𝘭𝘰𝘯𝘨 𝘰𝘳 𝘴𝘩𝘰𝘳𝘵 𝘣𝘳𝘦𝘢𝘬𝘴 𝘥𝘦𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘰𝘯 𝘸𝘩𝘢𝘵'𝘴 𝘨𝘰𝘪𝘯𝘨 𝘰𝘯
+4𝘵𝘦𝘦𝘯 ( 06.21)
 
-4𝘵𝘦𝘦𝘯 𝘪𝘯 4 𝘥𝘢𝘺𝘴𝘴( 06.21) 
-
-𝘏𝘢𝘱𝘱𝘪𝘭𝘺 𝘮𝘢𝘳𝘳𝘪𝘦𝘥 𝘢𝘯𝘥 𝘵𝘢𝘬𝘦𝘯 𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘸𝘪𝘧𝘦 𝘴𝘮. 
-
+𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘥𝘦𝘢𝘳 [𝓿𝓲𝓿𝓪𝓷](https://github.com/angelmizu)
 ────୨ৎ────────୨ৎ────────୨ৎ────
-𝘔𝘺 𝘵𝘳𝘶𝘴𝘵𝘦𝘥 𝘤𝘭𝘰𝘴𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘢𝘯𝘥 𝘧𝘢𝘮𝘪𝘭𝘺 ( 𝘪𝘭𝘺 𝘨𝘶𝘺𝘴) 
+ 𝘛𝘳𝘶𝘴𝘵𝘦𝘥 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘢𝘯𝘥 𝘧𝘢𝘮𝘪𝘭𝘺 (𝘐𝘭𝘺 𝘨𝘶𝘺𝘴) 
 
-𝙀𝙩𝙝𝙚 - (𝘐 𝘸𝘪𝘭𝘭 𝘳𝘮𝘬 𝘶𝘳 𝘩𝘰𝘯𝘰𝘳𝘴 𝘴𝘰𝘰𝘯 𝘐 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘬𝘯𝘰𝘸 𝘸𝘩𝘦𝘯 𝘪𝘭𝘺/𝘱 𝘵𝘩𝘰) 
-
-𝙉𝙖𝙩 -(𝘐𝘥𝘪𝘰𝘵 𝘒𝘢𝘪𝘵𝘰 𝘧𝘢𝘯 𝘢𝘯𝘥 𝘪𝘥𝘪𝘰𝘵𝘪𝘤 𝘣𝘳𝘰𝘵𝘩𝘦𝘳 𝘧𝘪𝘨𝘶𝘳𝘦) 
-
-𝙔𝙪𝙣𝙣𝙞𝙚 -(𝘔𝘺 𝘸𝘪𝘧𝘦 𝘪𝘭𝘺𝘴𝘮 𝘣𝘵𝘸) 
-
-𝘿𝙞𝙣𝙤 -(𝘚𝘢𝘯𝘦𝘴𝘵 𝘓𝘶𝘬𝘢 𝘧𝘢𝘯 ) 
-
-𝙔𝙤𝙠𝙪 -(𝘚𝘢𝘯𝘦𝘴𝘵 𝘥𝘦𝘧𝘰𝘬𝘰 𝘧𝘢𝘯 𝘐 𝘵𝘩𝘪𝘯𝘬 𝘪𝘥𝘬)
-
-𝙆𝙖𝙩𝙨𝙪 -(𝘛𝘩𝘦 𝘲𝘶𝘦𝘴𝘵𝘪𝘰𝘯𝘢𝘣𝘭𝘦 𝘤𝘳𝘦𝘢𝘵𝘶𝘳𝘦 𝘪𝘯 𝘮𝘺 𝘩𝘢𝘪𝘳) 
-
-𝙕𝙞𝙥 -(𝘩𝘪 𝘮𝘺 𝘱𝘳𝘦𝘤𝘪𝘰𝘶𝘴 𝘥𝘢𝘶𝘨𝘩𝘵𝘦𝘳 𝘪𝘭𝘺𝘴𝘮 𝘐'𝘭𝘭 𝘮𝘢𝘬𝘦 𝘶𝘳 𝘩𝘰𝘯𝘰𝘳𝘢𝘣𝘭𝘦 𝘴𝘰𝘰𝘯 𝘪 𝘱𝘳𝘰𝘮𝘪𝘴𝘦) 
+✧ 𝘠𝘦𝘰𝘯 & 𝘌𝘵𝘩𝘦
+✧ 𝘕𝘢𝘵
+✧ 𝘚𝘢𝘴
+✶ 𝘝𝘪𝘷𝘢𝘯 
+✧ 𝘋𝘪𝘯𝘰
+✧ 𝘡𝘪𝘱 
+✧ 𝘐𝘻𝘻𝘺
+✧ 𝘒𝘢𝘵𝘴𝘶 
+✧ 𝘠𝘰𝘬𝘶  
+(𝘐𝘧 𝘶 𝘸𝘦𝘯𝘵 𝘮𝘦𝘯𝘵𝘪𝘰𝘯𝘦𝘥 𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦  𝘣𝘶𝘵 𝘐 𝘭𝘰𝘷𝘦 𝘶 𝘢𝘭𝘭) 
 ────୨ৎ────────୨ৎ────────୨ৎ────
 
-𝖧𝖮𝖭𝖮𝖴𝖱𝖠𝖡𝖫𝖤 𝖬𝖤𝖭𝖳𝖨𝖮𝖭𝖲 𝖳𝖨𝖬𝖤
-
-(SORRY THIS TOOK LONG I GOT SICK AND LAZY BUT ALSO FORGOT LMAO😭) 
-
-nat - (idk how to start these off oml) HI NAT UR LIKE A BTOTHER TO ME (IDK WHAT ELSE TO SAY LMAO) i wanna say thank u for being with me through everything and being there when i wasnt at my best ur a really close friend to me and i dont wanna lose u bc ur really funny and i enjoy spending time with you or even talk to you but even when we dont talk i still enjoy seeing u online bc u mean so much to me and i dont wanna lose that bc we have so manny memories together and im really glad we became friends bc i enjoyed meeting bc u were a chill person when i first met u but again thank u so much for being one of my closest friends i love u so much/p and i hope we stay friend forever <3
-
-yunnie - HHIIHI MY LOVE i have soo much i could say about u firstly i wanna say i love u so so so so much and that u mean everything to me u make me so happy when ever i see u and ur very impotant to me and i hope i never lose u ( id be really sad ) im so glad that ur still with me and i hope it stays that way and i hope we can keep laughing together and making more memories to come i love you so much and i hope we never seprate (03.23) <3
-
-dino - HHIIHI DINONONOME ( U FINNALY MADE UR GITHUB IM SO HAPPY) UM I JSUT WANNA SAY THANK U SO MUCH FOR BEING ONE OF MY CLOSEST FRINEDS AN BEING THERE TO COMFORT ME WHEN I NEED IT UR SO IMPORTANT TO ME AND I DONT WANNA LOSE U im really greatful we have been friend for a long time and i hope it stays that way  i hope we stay friends for a good long time ilysm/p 
-
-yoku - a very dear close friend of mine i love spending time with her and shes really funny so i hope we stay close friends for good ilysm/p <3
-
-katsu - hhi katsu-chann (sorry its a habit i have with everyone) anywayi wanna say thnk you for being one of my close friends in such short time you really mean a loy to me and i hope we stay friends ilysm <3
 
 ᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
 
 ✧𝑩𝒀𝑰; 
 
-✦ ` 𝘐 𝘨𝘦𝘵 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘢𝘯𝘥 𝘷𝘦𝘳𝘺 𝘦𝘢𝘴𝘪𝘭𝘺 𝘦𝘴𝘱 𝘸𝘩𝘦𝘯 𝘳𝘢𝘯𝘥𝘰𝘮 𝘱𝘱𝘭 𝘸𝘢𝘭𝘬 𝘶𝘱 𝘵𝘰 𝘮𝘺 𝘨𝘳𝘰𝘶𝘱,𝘐𝘵 𝘮𝘢𝘬𝘦𝘴 𝘮𝘦 𝘷𝘦𝘳𝘺 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘢𝘯𝘥 𝘪𝘵 𝘤𝘢𝘶𝘴𝘦𝘴 𝘮𝘦 𝘵𝘰. 𝘮𝘰𝘷𝘦 𝘢𝘸𝘢𝘺 𝘨𝘰 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥 𝘮𝘢𝘺𝘣𝘦 𝘦𝘷𝘦𝘯 𝘭𝘢𝘴𝘩 𝘰𝘶𝘵 𝘰𝘳 𝘭𝘦𝘢𝘷𝘦 𝘢𝘧𝘵𝘦𝘳 𝘭𝘢𝘴𝘩𝘪𝘯𝘨 𝘰𝘶𝘵 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘮𝘦𝘢𝘯 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘰𝘧 𝘪𝘵 𝘐'𝘮 𝘫𝘶𝘴𝘵 𝘷𝘦𝘳𝘺 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘪𝘴 𝘢𝘭𝘭 𝘢𝘯𝘥 𝘯𝘦𝘦𝘥 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘵𝘰 𝘤𝘢𝘭𝘮 𝘮𝘦 𝘥𝘰𝘸𝘯
+✦ ` 𝘐 𝘨𝘦𝘵 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘢𝘯𝘥 𝘷𝘦𝘳𝘺 𝘦𝘢𝘴𝘪𝘭𝘺 𝘦𝘴𝘱 𝘸𝘩𝘦𝘯 𝘳𝘢𝘯𝘥𝘰𝘮 𝘱𝘱𝘭 𝘸𝘢𝘭𝘬 𝘶𝘱 𝘵𝘰 𝘮𝘺 𝘨𝘳𝘰𝘶𝘱,𝘐𝘵 𝘮𝘢𝘬𝘦𝘴 𝘮𝘦 𝘷𝘦𝘳𝘺 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘢𝘯𝘥 𝘪𝘵 𝘤𝘢𝘶𝘴𝘦𝘴 𝘮𝘦 𝘵𝘰 𝘮𝘰𝘷𝘦 𝘢𝘸𝘢𝘺 𝘨𝘰 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥 𝘮𝘢𝘺𝘣𝘦 𝘦𝘷𝘦𝘯 𝘭𝘢𝘴𝘩 𝘰𝘶𝘵 𝘰𝘳 𝘭𝘦𝘢𝘷𝘦 𝘢𝘧𝘵𝘦𝘳 𝘭𝘢𝘴𝘩𝘪𝘯𝘨 𝘰𝘶𝘵 𝘣𝘶𝘵 𝘐 𝘥𝘰𝘯'𝘵 𝘮𝘦𝘢𝘯 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘰𝘧 𝘪𝘵 𝘐'𝘮 𝘫𝘶𝘴𝘵 𝘷𝘦𝘳𝘺 𝘰𝘷𝘦𝘳𝘴𝘵𝘪𝘮𝘶𝘭𝘢𝘵𝘦𝘥 𝘪𝘴 𝘢𝘭𝘭 𝘢𝘯𝘥 𝘯𝘦𝘦𝘥 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘵𝘰 𝘤𝘢𝘭𝘮 𝘮𝘦 𝘥𝘰𝘸𝘯
 
 ✦ ` 𝘶𝘳 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 𝘵𝘰 𝘪𝘯𝘵, 𝘣𝘶𝘵 𝘐 𝘮𝘢𝘺 𝘤𝘰𝘮𝘦 𝘰𝘧𝘧 𝘢𝘴 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘳𝘶𝘥𝘦 𝘧𝘰𝘳 𝘰𝘶𝘳 𝘧𝘪𝘳𝘴𝘵 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘰𝘯 𝘣𝘤 𝘐𝘮 𝘯𝘰𝘵 𝘳𝘦𝘢𝘭𝘭𝘺 𝘢𝘤𝘵𝘪𝘷𝘦 𝘭𝘪𝘬𝘦 𝘵𝘩𝘢𝘵. 
 
